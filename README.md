@@ -1,1 +1,1 @@
-<img src="https://cdn140.picsart.com/321303280218201.gif">
+<img src="https://i.pinimg.com/originals/ce/02/ad/ce02ad9bc154836dc3f34b4cb6d6be5a.gif">
